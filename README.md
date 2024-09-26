@@ -3,7 +3,8 @@
 
 - [Bini Aiah](![image](https://github.com/user-attachments/assets/17fefd7d-9e37-40a4-9fdc-06185fd6738a)
 )
-- [Skibidi Sigma](https://i.ytimg.com/vi/WePNs-G7puA/hq720.jpg?sqp=-oaymwE7CK4FEIIDSFryq4qpAy0IARUAAAAAGAElAADIQj0AgKJD8AEB-AH-CYAC0AWKAgwIABABGGUgXShFMA8=&rs=AOn4CLC3dbKF2Jk8dzXTETyvDD2yhbgdeQ)
+- [Skibidi Sigma](![image](https://github.com/user-attachments/assets/0cd2b956-9aa7-4c8c-93c9-5fd39abdb984)
+)
 
 
 ## Song
