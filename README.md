@@ -3,7 +3,7 @@
 Hi im Sean, im gonna show you things <mark>about me!</mark>
 ---
 Goals
-[x] Be goog at Basketball player
+[x] Be good at Basketball
 [ ] Get good grades
 [ ] Have many friends
 ---
